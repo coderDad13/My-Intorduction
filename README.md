@@ -46,7 +46,7 @@
 📫 **Let's Connect**
 
 - 💼 [LinkedIn] https://www.linkedin.com/in/srikanthreddyvoncha/
-- 📬 Email me at: srikanth.voncha.@gmail.com OR srikanthreddy.1319@gmail.com
+- 📬 Email me at: srikanth.voncha@gmail.com OR srikanthreddy.1319@gmail.com
 
 ---
 
